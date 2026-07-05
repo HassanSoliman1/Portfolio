@@ -1,2 +1,0 @@
-# Hassan Soliman - Portfolio1
-
